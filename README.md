@@ -3,4 +3,6 @@
  membernya siapa ajahh?
 
  Safa pacar Juha sama Nella pacar Asahi dongggg 
-
+ 
+# nella try 
+kuyy nyoba lagi skskskskk
